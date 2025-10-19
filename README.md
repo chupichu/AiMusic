@@ -1,0 +1,2 @@
+# AiMusic
+Privacy policy
